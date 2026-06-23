@@ -1,1 +1,3 @@
-# Sarthak_INBT019723_iNeuBytes
+# Name - Sarthak Bansal
+Regd No. - INBT019723
+Course ID - 
